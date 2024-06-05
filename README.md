@@ -11,7 +11,7 @@
 
 - 👨🏽‍💼 How to reach me 👉🏽 **https://www.linkedin.com/in/eduardo-c%C3%A9sar-de-oliveira-2082581b9/**
 
-- 📄 Know more about me and my experiences 👉🏽 [Ecodz7.github.io](Ecodz7.github.io)
+- 📄 Know more about me and my experiences 👉🏽 https://ecodz7.github.io/
 
 - ⚡ Curious fact 👉🏽 **I love cooking, games and astronomy.**
 
